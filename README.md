@@ -1,2 +1,2 @@
-## ?? Oi !
-Seja bem vindo ao meu GitHub. Aqui, hospedo alguns projetos que desenvolvo para apoio � comunidade e alguns j� disponibilizo como portfolio.
+## ✈️ Oi !
+Seja bem vindo ao meu GitHub. Aqui, hospedo alguns projetos que desenvolvo para apoio à comunidade e alguns já disponibilizo como portfolio.
